@@ -1,0 +1,12 @@
+- 👋 Hi, I’m @YAZHIDURAI
+- 👀 I’m interested in ASTRONOMY
+- 🌱 I’m currently learning 1ST YEAR MECHANICAL ENGINEERING
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me yazhini@gamil.com
+- 😄 Pronouns: SHE
+- ⚡ Fun fact: 
+
+<!---
+YAZHIDURAI/YAZHIDURAI is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->
