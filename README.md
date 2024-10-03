@@ -2,7 +2,7 @@
 - 👀 I’m interested in ASTRONOMY
 - 🌱 I’m currently learning 1ST YEAR MECHANICAL ENGINEERING
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me yazhini@gamil.com
+- 📫 How to reach me yazhini22@gamil.com
 - 😄 Pronouns: SHE
 - ⚡ Fun fact: 
 
