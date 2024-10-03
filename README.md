@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @YAZHIDURAI
 - 👀 I’m interested in ASTRONOMY
-- 🌱 I’m currently learning 1ST YEAR MECHANICAL ENGINEERING
+- 🌱 I’m currently learning MECHANICAL ENGINEERING
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me yazhini22@gamil.com
 - 😄 Pronouns: SHE
