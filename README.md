@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me yazhini22@gamil.com
 - 😄 Pronouns: SHE
-- ⚡ Fun fact: 
+- ⚡ Fun fact: PROBLEMS WELCOMED
 
 <!---
 YAZHIDURAI/YAZHIDURAI is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
